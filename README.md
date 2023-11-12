@@ -2,7 +2,7 @@ Created by User.trchnkhim.xfaqw
 
 
 
-@Copyright® 2023 trchnkhim.czz
+@Copyright® 2023 trchnkhim.xfaqw
 
 
 
